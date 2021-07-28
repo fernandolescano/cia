@@ -1,0 +1,1 @@
+Paleta de colores:  https://coolors.co/d6dadb-1d5294-0f805a-da393e-ffffff
